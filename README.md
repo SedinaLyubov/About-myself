@@ -14,4 +14,4 @@ These were my thoughts.
 
 Believe in yourself my reader and do something bright for people. 
 
-![My dog - Eva](https://github.com/SedinaLyubov/About-myself/blob/main/1661001981080.jpg)
+![*My dog - Eva*](https://github.com/SedinaLyubov/About-myself/blob/main/1661001981080.jpg)
