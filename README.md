@@ -15,8 +15,8 @@ These were my thoughts.
 
 Believe in yourself my reader and do something bright for people. 
 |My dog - Eva|My horseback ride|
-|---|---|
-|![](https://github.com/SedinaLyubov/About-myself/blob/main/1661001981080.jpg)|![](https://github.com/SedinaLyubov/About-myself/blob/main/1662386834746.jpg)|
+|-------|---------|
+|![lll](https://github.com/SedinaLyubov/About-myself/blob/main/1661001981080.jpg)|![](https://github.com/SedinaLyubov/About-myself/blob/main/1662386834746.jpg)|
 
 
 |My painting from Master Class|I like walkings with my dog near my home|
