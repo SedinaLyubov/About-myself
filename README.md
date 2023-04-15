@@ -15,7 +15,7 @@ These were my thoughts.
 
 Believe in yourself my reader and do something bright for people. 
 |My dog - Eva|My horseback ride|
-|-------|---------|
+|----|----|
 |![1661001981080](https://user-images.githubusercontent.com/130222790/232258377-b29313ec-bf2d-44be-ab67-b4b960175dda.jpg)|![1662386834746](https://user-images.githubusercontent.com/130222790/232258382-e399836d-a2eb-4ac1-83ec-26875d618181.jpg)|
 
 
@@ -27,7 +27,9 @@ Believe in yourself my reader and do something bright for people.
 |Photo of the hill|
 |----|
 ![20220814_150340 (1)](https://user-images.githubusercontent.com/130222790/232258299-1cbd2b7e-56e4-4f23-a970-6966e6106f56.png)
+
 |Have a good day! :)|
+|----|
 ![1679678218224](https://user-images.githubusercontent.com/130222790/232258348-4c5c107f-70d1-45dc-99cb-b587960ce7ef.jpg)
 
 
