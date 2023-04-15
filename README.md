@@ -25,6 +25,6 @@ Believe in yourself my reader and do something bright for people.
 
 |Photo of the hill|
 |-----|
-|![](https://github.com/SedinaLyubov/About-myself/blob/main/20220814_150340.jpg)|
+|![](https://github.com/SedinaLyubov/About-myself/blob/SedinaLyubov-patch-2/20220814_150340%20(1).png)|
 |Have a good day! :)|
 |![](https://github.com/SedinaLyubov/About-myself/blob/main/1679678218224.jpg)|
