@@ -13,7 +13,8 @@ I believe in the bright future. I think that our dreams must be reality. I belie
 
 These were my thoughts.
 
-Believe in yourself my reader and do something bright for people. 
+Believe in yourself my reader and do something bright for people.
+
 |My dog - Eva|My horseback ride|
 |----|----|
 |![1661001981080](https://user-images.githubusercontent.com/130222790/232258377-b29313ec-bf2d-44be-ab67-b4b960175dda.jpg)|![1662386834746](https://user-images.githubusercontent.com/130222790/232258382-e399836d-a2eb-4ac1-83ec-26875d618181.jpg)|
