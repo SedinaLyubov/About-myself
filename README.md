@@ -10,7 +10,7 @@ What else can i add?
 
 
 I believe in the bright future. I think that our dreams must be reality. I believe in love.
-Love is not ellusion. Love helps to develop yourself.
+
 These were my thoughts.
 
 Believe in yourself my reader and do something bright for people. 
